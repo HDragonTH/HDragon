@@ -1,2 +1,0 @@
-# HDragon
-Hong
